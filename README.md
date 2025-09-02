@@ -1,0 +1,1 @@
+what is the project smart garden about? fyi, i am not talking about the project that is open in the workspace right now
